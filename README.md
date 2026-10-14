@@ -1,0 +1,2 @@
+# uzumnasiya
+magazin
